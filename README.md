@@ -1,0 +1,1 @@
+# s1d11-egzersiz2
